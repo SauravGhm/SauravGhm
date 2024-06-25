@@ -1,1 +1,1 @@
-Interested in Learning !
+Learning on a Curve
